@@ -1,1 +1,1 @@
-<img src=https://komarev.com/ghpvc/?username=pastellcloudy&color=green&abbreviated=true&style=flat-square>
+<img src=[https://komarev.com/ghpvc/?username=pastellcloudy&color=green&abbreviated=true&style=flat-square>](https://komarev.com/ghpvc/?username=pastellcloudy&color=green&abbreviated=true&style=flat-square%3E)
