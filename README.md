@@ -9,4 +9,4 @@ I freely block people despite my DNI/INT list (available through my sp)
 - beast x ancient shippers (fully)
 - simply not my vibe or annoying me (7 days or fully)
 
-I fw people even if we may not be friends (for example crackpawt in the cookei run area)
+I fw people even if we may not be friends (for example crackpawt in the cookie run area)
