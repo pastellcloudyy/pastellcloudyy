@@ -12,4 +12,5 @@ I freely block people despite my DNI/INT list (available through my sp)
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
 The link below leads to a site for my ocs lore, stories, ect (MASSIVE WIP)
+
 https://wip-oclore-story.straw.page/
