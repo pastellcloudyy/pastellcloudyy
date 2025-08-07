@@ -19,3 +19,5 @@ I fw people even if we may not be friends (for example crackpawt in the cookie r
 
 The link below leads to a site for my ocs lore, stories, ect (MASSIVE WIP)
 - https://wip-oclore-story.straw.page/
+
+<img src="[inserts img link](https://file.garden/aFcXo5382hs7xX6v/rossy.gif)">
