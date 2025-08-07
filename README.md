@@ -1,4 +1,4 @@
-dumb chronically online idiot who is rosemary irl I guess
+dumb chronically online idiot who is rosemary irl nothing special
 
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
 
@@ -6,13 +6,14 @@ still doing my read.me even if you can find most info on my links.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 
-I freely block people despite my DNI/INT list (available through my sp)
+I block people based off my DNI/INT list, mainly these below (list available through my sp)
 - cream soda skins (7 days)
 - dandy's world fans (7 days)
 - innapropriate skins (no expire)
 - beast x ancient shippers (no expire)
-- covering me for no reason just to annoy me (7 days)
-- simply not my vibe or annoying me (7 days or no expire)
+- ragebait (7 days, no expire if they offend me or my friends)
+- simply not my vibe or genuinly weird (7 days or no expire)
+- zoophiles, pedophiles, stuff like that (no expire, obv)
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
