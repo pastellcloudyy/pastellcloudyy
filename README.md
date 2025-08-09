@@ -5,6 +5,8 @@ dumb chronically online idiot who is rosemary irl nothing special
 still doing my read.me even if you can find most info on my links.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
+- free inspo off my skins / ocs, just don't copy them (I won't give permission to take inspo / copy my main oc obv)
+- IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 
 I block people based off my DNI/INT list, mainly these below (list available through my sp)
 - cream soda skins (7 days)
@@ -13,7 +15,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - beast x ancient shippers (no expire)
 - ragebait (7 days, no expire if they offend me or my friends)
 - simply not my vibe or genuinly weird (7 days or no expire)
-- zoophiles, pedophiles, stuff like that (no expire, obv)
+- zoophiles, pedophiles, stuff like that (no expire)
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area, yes even if they all of a sudden have supporter /silly)
 
