@@ -5,7 +5,7 @@ dumb chronically online idiot who is rosemary irl nothing special
 still doing my read.me even if you can find most info on my links.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
-- free inspo off my skins / ocs, just don't copy them (I won't give permission to take inspo / copy my main oc(s) obv)
+- free inspo off my skins / ocs, just don't copy them (I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 
 I block people based off my DNI/INT list, mainly these below (list available through my sp)
@@ -20,6 +20,6 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
 Link below sends you to my list of OCs, I don't have art of any of them unfortunately
-- [currenly incompleat! apologies!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+- [heyyy.. I'm the link you're looking for... GHELP](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/rossy.gif" width="100" height="100" />
