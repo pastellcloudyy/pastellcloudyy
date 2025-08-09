@@ -7,6 +7,8 @@ still doing my read.me even if you can find most info on my links.. ue 🧀😭
 - c+h only with permission
 - free inspo off my skins / OCs, just don't copy them (I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
+- easly overwhelmed and may not talk much then, unsure what the cause of this is
+- horrible and I mean HORRIBLE memory, if you saw me before trust me I don't remember you
 
 I block people based off my DNI/INT list, mainly these below (list available through my sp)
 - cream soda skins (7 days)
