@@ -17,7 +17,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - simply not my vibe or genuinly weird (7 days or no expire)
 - zoophiles, pedophiles, stuff like that (no expire)
 
-I fw people even if we may not be friends (for example crackpawt in the cookie run area, yes even if they all of a sudden have supporter /silly)
+I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
 The link below leads to a site for my ocs lore, stories, ect (MASSIVE WIP)
 - https://wip-oclore-story.straw.page/
