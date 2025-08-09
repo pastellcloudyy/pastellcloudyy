@@ -19,7 +19,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
-The link below leads to a site for my ocs lore, stories, ect (MASSIVE WIP)
-- https://wip-oclore-story.straw.page/
+Link below sends you to my list of OCs, I don't have art of any of them unfortunately
+- link still being worked on.. sweats
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/rossy.gif" width="100" height="100" />
