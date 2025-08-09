@@ -5,7 +5,7 @@ dumb chronically online idiot who is rosemary irl nothing special
 still doing my read.me even if you can find most info on my links.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
-- free inspo off my skins / ocs, just don't copy them (I won't give permission to take inspo / copy my main OCs obv)
+- free inspo off my skins / OCs, just don't copy them (I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 
 I block people based off my DNI/INT list, mainly these below (list available through my sp)
