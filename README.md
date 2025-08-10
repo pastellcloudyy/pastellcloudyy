@@ -8,7 +8,7 @@ still working on my read.me, check strawpage for even more info.. ue 🧀😭
 - free inspo off my skins / OCs, just don't copy them (I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
-- horrible and I mean HORRIBLE memory, trust me if you saw me b4 I won't remember you
+- horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
 
 I block people based off my DNI/INT list, mainly these below (list available through my sp)
 - cream soda skins (7 days)
