@@ -1,3 +1,5 @@
+<img src="https://readme-typing-svg.demolab.com/?lines=cabbage sauce;something&font=Libertinus+Math&center=true&width=1080&height=50&color=9ab050e&duration=2500&pause=1000">
+
 dumb chronically online idiot who is rosemary irl nothing special
 
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
