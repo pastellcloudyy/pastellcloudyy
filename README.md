@@ -6,7 +6,7 @@ still working on my read.me, check strawpage for even more info.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 - free inspo off my skins / OCs just lmk before you do, don't copy them compleatly though
-  (I won't give permission to take inspo / copy my main OCs obv)
+(I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
 - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
