@@ -5,7 +5,7 @@ dumb chronically online idiot who is rosemary irl nothing special
 still working on my read.me, check strawpage for even more info.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
-- free inspo off my skins / OCs just let me know first (I won't give permission to take inspo / copy my main OCs obv)
+- free inspo off my cosplays / OCs just let me know first (I won't give permission to take inspo / copy my main OCs obv)
 - IWC when I'm with my friends / partner as I have a high chance I'll ignore you
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
 - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
@@ -18,7 +18,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - ragebait (7 days, no expire if they offend me or my friends)
 - simply not my vibe or genuinly weird (7 days or no expire)
 - zoophiles, pedophiles, stuff like that (no expire)
-- copying my cosplays / ocs compleatly
+- copying my cosplays / OCs compleatly
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
