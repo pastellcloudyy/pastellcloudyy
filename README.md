@@ -20,7 +20,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - zoophiles, pedophiles, stuff like that (no expire)
 - copying my cosplays / OCs compleatly
 
-Blocking spam follow accounts, idk I just don't get them and they are lowk annoying me (friend alts get an exception obv)
+Blocking spam follow, on my dni, if I'm on your dni/thin ice, or again simply not my vibe
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
