@@ -19,7 +19,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - ragebait (7 days, no expire if they offend me or my friends)
 - simply not my vibe or genuinly weird (7 days or no expire)
 - zoophiles, pedophiles, stuff like that (no expire)
-- copying my cosplays / OCs compleatly
+- copying my cosplays / OCs (no expire)
 
 Blocking spam follow, on my dni, or again simply not my vibe
 
