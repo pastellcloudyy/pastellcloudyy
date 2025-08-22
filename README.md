@@ -2,7 +2,7 @@ dumb chronically online idiot who is rosemary irl nothing special
 
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
 
-still working on my read.me, check strawpage for even more info.. ue 🧀😭
+kinda working on read.me and possible sp remake.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs)
