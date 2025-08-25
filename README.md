@@ -7,7 +7,7 @@ kinda working on read.me and possible sp remake.. ue 🧀😭
 - c+h only with permission
 - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs)
 - simular to the last one, please don't copy my skins
-- IWC when I'm with my friends / partner as I have a high chance I'll ignore you
+- IWC when I'm with my friends as I have a high chance I'll ignore you
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
 - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
 
