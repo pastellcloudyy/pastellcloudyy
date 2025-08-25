@@ -21,7 +21,7 @@ I block people based off my DNI/INT list, mainly these below (list available thr
 - zoophiles, pedophiles, stuff like that (no expire)
 - copying my cosplays / OCs (no expire)
 
-Blocking spam follow, on my dni, or again simply not my vibe
+Blocking spam follow (obv), on my dni, or again simply not my vibe
 
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
