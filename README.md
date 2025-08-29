@@ -1,8 +1,8 @@
-dumb chronically online idiot who is rosemary irl nothing special
+dumb chronically online idiot who is lamia obsessed nothing special
 
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
 
-kinda working on read.me and possible sp remake.. ue 🧀😭
+soon working on read.me and sp remake.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs)
