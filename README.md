@@ -26,6 +26,6 @@ On GitHub I'm blocking spam follow (obv), on my dni, or again simply not my vibe
 I fw people even if we may not be friends (for example crackpawt in the cookie run area)
 
 Link below sends you to my list of OCs, I don't have art of any of them unfortunately
-- [heyyy.. I'm the link you're looking for... GHELP](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+- [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="110" height="110" />
