@@ -25,4 +25,4 @@
   
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="110" height="110" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="150" height="150" /> </p>
