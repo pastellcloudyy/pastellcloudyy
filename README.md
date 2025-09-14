@@ -1,6 +1,6 @@
 <div align='center'>
   
-[size=18]unfortunately less active on pt / roblox due to school[/size]
+[SIZE=18]unfortunately less active on pt / roblox due to school[/SIZE]
 
 </div>
 
