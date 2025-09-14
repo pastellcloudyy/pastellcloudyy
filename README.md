@@ -16,6 +16,6 @@ slowly working on read.me and sp remake.. ue 🧀😭
   once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni
 
 <p align='center'> link below sends you to my list of OCs, I don't have art of any of them unfortunately </p>
-<div align='center'> [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx) </d>
+<div align='center'> [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="110" height="110" /> </p>
