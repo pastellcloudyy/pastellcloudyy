@@ -1,6 +1,6 @@
 <p align='center'> unfortunately less active on pt / roblox due to school </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='Hm.+I'm+Lamia...+Hm?+Say+something+else?+Eh...+H-hold+on...+Let+me+think...';'D-did+you+pick+the+wrong+person...?';'A-are+we+fighting+for+real...?+Don't+expect+too+much!';'Don't+feel+ashamed+yawning+at+work.+What's+wrong+with+that?';'Aren't+you+bored+doing+the+same+thing+every+day?'&font=Libertinus+Math&center=true&width=1080&height=50&color=86aebc&duration=2500&pause=1000">
+<img src="https://readme-typing-svg.demolab.com/?lines=´´+Hm.+I'm+Lamia...+Hm?+Say+something+else?+Eh...+H-hold+on...+Let+me+think...+´´;´´+D-did+you+pick+the+wrong+person...?+´´;´´+A-are+we+fighting+for+real...?+Don't+expect+too+much!+´´;´´+Don't+feel+ashamed+yawning+at+work.+What's+wrong+with+that?+´´;´´+Aren't+you+bored+doing+the+same+thing+every+day?+´´&font=Libertinus+Math&center=true&width=1080&height=50&color=86aebc&duration=2500&pause=1000">
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy=color=86aebc&abberviated=true&style=flat-square&label=fishies> </p>
 
