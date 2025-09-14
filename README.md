@@ -2,7 +2,7 @@ unfortunately less active on pt / roblox due to school
 
 <img src="https://readme-typing-svg.demolab.com/?lines='Hm.+I'm+Lamia...+Hm?+Say+something+else?+Eh...+H-hold+on...+Let+me+think...';'D-did+you+pick+the+wrong+person...?';'A-are+we+fighting+for+real...?+Don't+expect+too+much!';'Don't+feel+ashamed+yawning+at+work.+What's+wrong+with+that?';'Aren't+you+bored+doing+the+same+thing+every+day?'&font=Libertinus+Math&center=true&width=1080&height=50&color=86aebc&duration=2500&pause=1000">
 
-![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
+<p align='center'> ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy) </p>
 
 slowly working on read.me and sp remake due to school.. ue 🧀😭
 - please do not cover me, only if you're someone I know
