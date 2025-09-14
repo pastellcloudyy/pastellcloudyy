@@ -1,6 +1,6 @@
-dumb chronically online idiot who is lamia obsessed nothing special
-
 unfortunately less active on pt / roblox due to school
+
+<img src="https://readme-typing-svg.demolab.com/?lines='Hm.+I'm+Lamia...+Hm?+Say+something+else?+Eh...+H-hold+on...+Let+me+think...';'D-did+you+pick+the+wrong person...?';'A-are we+fighting+for+real...?+Don't+expect+too+much!';'Don't+feel+ashamed+yawning+at+work.+What's+wrong+with+that?';'Aren't+you+bored+doing+the+same+thing+every+day?'&font=Libertinus+Math&center=true&width=1080&height=50&color=86aebc&duration=2500&pause=1000">
 
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=pastellcloudy.pastellcloudy)
 
@@ -13,21 +13,9 @@ slowly working on read.me and sp remake due to school.. ue 🧀😭
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
 - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
 
-I block people based off my DNI/INT list, mainly these below (list available through my sp)
-- cream soda skins (7 days)
-- dandy's world fans (7 days)
-- innapropriate skins (no expire)
-- beast x ancient shippers (no expire)
-- ragebait (7 days, no expire if they offend me or my friends)
-- simply not my vibe or genuinly weird (7 days or no expire)
-- zoophiles, pedophiles, stuff like that (no expire)
-- copying my cosplays / OCs (no expire)
-
-On GitHub I'm blocking spam follow (obv), on my dni, or again simply not my vibe
-
-I fw people even if we may not be friends (for example crackpawt in the cookie run area)
+  once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni
 
 Link below sends you to my list of OCs, I don't have art of any of them unfortunately
 - [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
 
-<img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="110" height="110" />
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="110" height="110" /> </p>
