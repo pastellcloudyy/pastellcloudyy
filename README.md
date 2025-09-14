@@ -7,6 +7,7 @@
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=335374&abbreviated=true&style=flat-square> </p>
 
 <p align='center'> slowly working on read.me and sp remake.. ue 🧀😭 </p>
+
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs)
@@ -14,8 +15,7 @@
 - IWC when I'm with my friends as I have a high chance I'll ignore you
 - easly overwhelmed and may not talk much then, unsure what the cause of this is
 - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately
-
-  once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni
+- once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni
 
 <p align='center'> link below sends you to my list of OCs, I don't have art of any of them unfortunately </p>
 
