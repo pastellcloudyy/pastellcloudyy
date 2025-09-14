@@ -4,7 +4,7 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy=color86aebc&abberviated=true&style=flat-square&label=Fishies> </p>
 
-slowly working on read.me and sp remake due to school.. ue 🧀😭
+slowly working on read.me and sp remake.. ue 🧀😭
 - please do not cover me, only if you're someone I know
 - c+h only with permission
 - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs)
