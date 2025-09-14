@@ -1,8 +1,4 @@
-<div align='center'>
-  
-[SIZE=18]unfortunately less active on pt / roblox due to school[/SIZE]
-
-</div>
+<p align='center'> unfortunately less active on pt / roblox due to school </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled310_20250829171100.png" width="400" height="400"> </p>
 
