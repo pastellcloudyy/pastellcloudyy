@@ -8,12 +8,14 @@
 
 <p align='center'> slowly working on read.me, dni list and socials remake.. ue 🧀😭 </p>
 
+
 <p align='center'> - please do not cover me, only if you're someone I know </p>
 <p align='center'> - c+h only with permission </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately </p>
 <p align='center'> - once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni </p>
+
 
 <p align='center'> read my strawpage for more information.. u </p>
 
