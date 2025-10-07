@@ -1,4 +1,4 @@
-<p align='center'> unfortunately less active on pony town due to school </p>
+<p align='center'> less active on pony town and roblox due to school </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled310_20250829171100.png" width="400" height="400"> </p>
 
@@ -6,7 +6,7 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=335374&abbreviated=true&style=flat-square> </p>
 
-<p align='center'> slowly working on read.me, dni list and socials remake.. ue 🧀😭 </p>
+<p align='center'> slowly working on dni list and socials remake.. ue 🧀😭 (available through strawpage) </p>
 
 <p align='center'> ⋆ </p>
 <p align='center'> - please do not cover me, only if you're someone I know </p>
@@ -14,7 +14,7 @@
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately </p>
-<p align='center'> - once again spam follow dni unless friend, may also block you if you're not my vibe or on my dni </p>
+<p align='center'> - once again spam blocked unless you're my friend, may also block you if you're not my vibe or on my dni </p>
 <p align='center'> ⋆ </p>
 
 <p align='center'> read my strawpage for more information.. u </p>
