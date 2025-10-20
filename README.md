@@ -6,7 +6,7 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=335374&abbreviated=true&style=flat-square> </p>
 
-<p align='center'> slowly working on dni list and socials remake.. ue 🧀😭 (available through strawpage) </p>
+<p align='center'> 🐟 dni and socials available through strawpage 🐟 </p>
 
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/v55.gif /> </p>
 <p align='center'> - please do not cover me, only if you're someone I know </p>
@@ -17,7 +17,7 @@
 <p align='center'> - once again spam blocked unless you're my friend, may also block you if you're not my vibe or on my dni </p>
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/e79.gif /> </p>
 
-<p align='center'> read my strawpage for more information.. u </p>
+<p align='center'> 🐟 read my strawpage for more information 🐟 </p>
 
 <p align='center'> link below sends you to my list of OCs, I don't have art of any of them unfortunately </p>
 
