@@ -19,7 +19,7 @@
 
 <p align='center'> 🐟 read my strawpage for more information 🐟 </p>
 
-<p align='center'> random links below including gaia online and a list of my ocs </p>
+<p align='center'> random links below including gaia online badge (a bit broken) and a list of my ocs </p>
 
 <div align='center'>
   
