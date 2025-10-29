@@ -19,11 +19,17 @@
 
 <p align='center'> 🐟 read my strawpage for more information 🐟 </p>
 
-<p align='center'> link below sends you to my list of OCs, I don't have art of any of them unfortunately </p>
+<p align='center'> random links below including gaia online and a list of my ocs </p>
 
 <div align='center'>
   
 [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+  
+</div>
+
+<div align='center'>
+  
+[Gaia Online!](https://www.gaiaonline.com/badge/50593839/?_gaia_mkt_=410)
   
 </div>
 
