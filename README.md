@@ -4,6 +4,7 @@
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled454_20251121155531.png" width="300" height="300"> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+Something+mysterious+has+appeared+somewhere+on+the+map..+';'+???+';'+You+decided+to+wear+this+strange+goggle...+';'+You+feel+as+if+you+are+invincible...+';'+The+mysterious+entity+cowarded+out,+but+nothing+appeared+in+its+stead..+';'+You+still+cannot+deny+the+power+even+as+you+run+from+it.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=fe5fff&duration=2500&pause=1000">
+<p align='center'> last two lines aren't canon but shh nobody tell anyone </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=291E2C&abbreviated=true&style=flat-square> </p>
 
