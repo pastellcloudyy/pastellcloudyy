@@ -6,9 +6,9 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=335374&abbreviated=true&style=flat-square> </p>
 
-<p align='center'> 🐟 dni and socials available through strawpage 🐟 </p>
+<p align='center'> 🦎 dni and socials available through strawpage 🦎 </p>
 
-<p align='center'> <img src=https://adriansblinkiecollection.neocities.org/v55.gif /> </p>
+<p align='center'> <img scr=https://adriansblinkiecollection.neocities.org/stamps/g5.gif /> </p>
 <p align='center'> - please do not cover me, only if you're someone I know </p>
 <p align='center'> - c+h only with permission </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
@@ -17,7 +17,7 @@
 <p align='center'> - once again spam blocked unless you're my friend, may also block you if you're not my vibe or on my dni </p>
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/e79.gif /> </p>
 
-<p align='center'> 🐟 read my strawpage for more information 🐟 </p>
+<p align='center'> 🦎 read strawpage for more information teehee 🦎 </p>
 
 <p align='center'> random links below including gaia online badge (a bit broken) and a list of my ocs </p>
 
@@ -33,4 +33,4 @@
   
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/1c979283-7dc6-4102-ab7e-746467445b96.gif" width="150" height="150" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/ezgif.com-added-text.gif" width="200" height="150" /> </p>
