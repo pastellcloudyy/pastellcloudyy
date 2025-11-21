@@ -1,4 +1,4 @@
-<p align='center'> less active on pony town and roblox due to school </p>
+<p align='center'> less active on pony town and roblox due to school, remaking lowk almost everything because I lost interest in pgr (wild ik) </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled310_20250829171100.png" width="400" height="400"> </p>
 
