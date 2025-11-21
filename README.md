@@ -1,5 +1,5 @@
 <p align='center'> less active on pony town and roblox due to school </p>
-<p align='center'> , remaking strawpage theme when I feel motivated because I lost interest in pgr (wild ik) </p>
+<p align='center'> remaking strawpage theme when I feel motivated because I lost most of my interest in pgr (wild ik) </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled454_20251121155531.png" width="300" height="300"> </p>
 
