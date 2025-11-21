@@ -8,7 +8,7 @@
 
 <p align='center'> 🦎 dni and socials available through strawpage 🦎 </p>
 
-<p align='center'> <img scr=https://adriansblinkiecollection.neocities.org/stamps/g5.gif /> </p>
+<p align='center'> <img scr=https://adriansblinkiecollection.neocities.org/x1.gif /> </p>
 <p align='center'> - please do not cover me, only if you're someone I know </p>
 <p align='center'> - c+h only with permission </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
