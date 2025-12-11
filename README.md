@@ -15,7 +15,7 @@
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately </p>
-<p align='center'> - once again spam blocked unless you're my friend, may also block you if you're not my vibe or on my dni </p>
+<p align='center'> - once again, blocked unless you're my friend or e-fam </p>
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/e79.gif /> </p>
 
 <p align='center'> 🦎 read strawpage for more information teehee 🦎 </p>
