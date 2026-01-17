@@ -20,17 +20,11 @@
 
 <p align='center'> 🦎 read strawpage for more information teehee 🦎 </p>
 
-<p align='center'> random links below including gaia online badge (a bit broken) and a list of my ocs </p>
+<p align='center'> random link below is a list of my ocs </p>
 
 <div align='center'>
   
 [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
-  
-</div>
-
-<div align='center'>
-  
-[Gaia Online!](https://www.gaiaonline.com/badge/50593839/?_gaia_mkt_=410)
   
 </div>
 
