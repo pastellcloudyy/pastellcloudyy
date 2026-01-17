@@ -1,4 +1,4 @@
-<p align='center'> taking a break from pony town bc the community is straight up dogshit and I'm tired of it </p>
+<p align='center'> playing pony town way less bc the community is straight up dogshit and I'm tired of it </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled454_20251121155531.png" width="300" height="300"> </p>
 
