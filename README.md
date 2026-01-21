@@ -1,4 +1,5 @@
 <p align='center'> playing pony town way less bc the community is straight up dogshit and I'm tired of it </p>
+<p align='center'> say anything about kp's past of being a transfur game and I will block you </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled454_20251121155531.png" width="300" height="300"> </p>
 
@@ -10,8 +11,6 @@
 <p align='center'> 🦎 dni and socials available through strawpage 🦎 </p>
 
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/g5.gif /> </p>
-<p align='center'> - please do not cover me, only if you're someone I know </p>
-<p align='center'> - c+h only with permission </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - horrible and I mean HORRIBLE memory, trust me if I did smt I forget almost immediately </p>
@@ -24,13 +23,13 @@
 
 <div align='center'>
   
-[OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+[OC list link](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
   
 </div>
 
 <div align='center'>
   
-[Callout..](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
+[Callout](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
   
 </div>
 
