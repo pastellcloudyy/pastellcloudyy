@@ -20,11 +20,17 @@
 
 <p align='center'> 🦎 read strawpage for more information teehee 🦎 </p>
 
-<p align='center'> random link below is a list of my ocs </p>
+<p align='center'> links below include the callout and oc list </p>
 
 <div align='center'>
   
 [OC list link!](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+  
+</div>
+
+<div align='center'>
+  
+[Callout..](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
   
 </div>
 
