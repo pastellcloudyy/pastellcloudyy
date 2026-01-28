@@ -17,17 +17,23 @@
 
 <p align='center'> ⛓️ read strawpage for more information teehee ☀️ </p>
 
-<p align='center'> links below include the callout and oc list </p>
+<p align='center'> links below include the callout, oc list and the theory (no I don't use reddit) </p>
 
 <div align='center'>
   
-[OC list link](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
+[OC list](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx)
   
 </div>
 
 <div align='center'>
   
 [Callout](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
+  
+</div>
+
+<div align='center'>
+  
+[Theory](https://www.reddit.com/r/DoodleWorldRBLX/comments/1bpmxbz/3_am_exiled_theories/)
   
 </div>
 
