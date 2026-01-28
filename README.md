@@ -9,7 +9,7 @@
 
 <p align='center'> 🌤 dni and socials available through strawpage 🪽 </p>
 
-<p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/g5.gif /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="250" height="200" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - once again, blocked unless you're my friend or e-fam </p>
@@ -31,4 +31,4 @@
   
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="200" height="150" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="250" height="200" /> </p>
