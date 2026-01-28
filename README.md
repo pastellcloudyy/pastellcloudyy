@@ -1,15 +1,15 @@
-<p align='center'> playing pony town way less bc the community is straight up dogshit and I'm tired of it </p>
+<p align='center'> playing pony town less bc the community is straight up dogshit and I'm tired of it </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="300" height="300"> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+wip+';'+wip+';'+wip+';'+wip+';'+wip+';'+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
-<p align='center'> text (will be) inspired by a reddit theory about exiled 👀 </p>
+<img src="https://readme-typing-svg.demolab.com/?lines='+A+divine+beast+has+fallen+from+grace?+';'+How+worthless.+';'+Can't+protect+the+one+thing+they're+supposed+to.+';'+Banish+them.+';'+.+.+.+';'+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
+<p align='center'> inspired by a [theory](https://www.reddit.com/r/DoodleWorldRBLX/comments/1bpmxbz/3_am_exiled_theories/) about exiled I found 👀 </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B8AA82&abbreviated=true&style=flat-square> </p>
 
 <p align='center'> 🌤 dni and socials available through strawpage 🪽 </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="250" height="200" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="300" height="250" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simular to the last one, please don't copy my skins </p>
 <p align='center'> - once again, blocked unless you're my friend or e-fam </p>
@@ -31,4 +31,4 @@
   
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="250" height="200" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="300" height="250" /> </p>
