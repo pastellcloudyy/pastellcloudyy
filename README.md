@@ -1,9 +1,9 @@
 <p align='center'> playing pony town less bc the community is straight up dogshit and I'm tired of it </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="300" height="300"> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="350" height="350"> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+A+divine+beast+has+fallen+from+grace?+';'+How+worthless.+';'+Can't+protect+the+one+thing+they're+supposed+to.+';'+Banish+them.+';'+.+.+.+';'+You+won't+be+rememberd.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
-<p align='center'> inspired by a theory about exiled I found 👀 </p>
+<p align='center'> text inspired by a theory about exiled I found 👀 </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B8AA82&abbreviated=true&style=flat-square> </p>
 
