@@ -1,4 +1,5 @@
 <p align='center'> playing pony town less bc the community is straight up dogshit and I'm tired of it </p>
+<p align='center'> before you ask yes I know 🔗 is the link emoji but shh </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="350" height="350"> </p>
 
