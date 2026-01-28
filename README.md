@@ -2,10 +2,10 @@
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="300" height="300"> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+wip+';'+wip+';'+wip+';'+wip+';'+wip+';'+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=fe5fff&duration=2500&pause=1000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+wip+';'+wip+';'+wip+';'+wip+';'+wip+';'+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
 <p align='center'> text (will be) inspired by a reddit theory about exiled 👀 </p>
 
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=291E2C&abbreviated=true&style=flat-square> </p>
+<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B8AA82&abbreviated=true&style=flat-square> </p>
 
 <p align='center'> 🌤 dni and socials available through strawpage 🪽 </p>
 
