@@ -12,8 +12,8 @@
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="300" height="250" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
-<p align='center'> - simular to the last one, please don't copy my skins </p>
-<p align='center'> - once again, blocked unless you're my friend or e-fam </p>
+<p align='center'> - simularly, I will also allow inspo off my cosplay skins but please don't copy them compleatly </p>
+<p align='center'> - once again, blocked unless you're my friend or e-fam, I might give exceptions </p>
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/e79.gif /> </p>
 
 <p align='center'> ⛓️ read strawpage for more information teehee ☀️ </p>
