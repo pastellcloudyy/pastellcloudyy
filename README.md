@@ -8,6 +8,8 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B8AA82&abbreviated=true&style=flat-square> </p>
 
+<img src="https://readme-typing-svg.demolab.com/?lines='+The+origin+of+this+doodle+is+widely+disputed,+ultimately+boiling+down+to+speculation+and+rumor.+';'+Its+name+has+been+lost+to+time,+some+believing+it+to+be+a+punishment,+shackled+for+crimes+unknown.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
+
 <p align='center'> 🌤 ' Its name has been lost to time, some believing it to be a punishment, shackled for crimes unknown. ' 🪽 </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="300" height="250" /> </p>
