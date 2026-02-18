@@ -32,12 +32,22 @@
   <details>
     <summary>     </summary>
   <br> <small>song refrence yes
+    
 <p align='center'> Why.. Why.. </p>
 <p align='center'> Even though endure the trembling of my heart to survive </p>
 <p align='center'> I tried my best </p>
 <p align='center'> Why.. Why.. </p>
 <p align='center'> I'm always showing sad faces </p>
 <p align='center'> Forever </p>
+
+<p align='center'> . . . </p>
+
+<p align='center'> That's right! That's right! </p>
+<p align='center'> I'll keep going with all my stubbornness! </p>
+<p align='center'> Even though it's the β era! </p>
+<p align='center'> That's right! That's right! </p>
+<p align='center'> Even if I'm sick </p>
+<p align='center'> I'll recover and everything will be fine! </p>
  
   </details>
 </div>
