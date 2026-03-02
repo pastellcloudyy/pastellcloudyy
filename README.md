@@ -11,7 +11,7 @@
 
 <p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/huh.png" width="300" height="250" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/huh.png" width="100" height="100" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simularly, I will also allow inspo off my cosplay skins but please don't copy them compleatly </p>
 <p align='center'> - once again, blocked unless you're my friend or e-fam, I might give exceptions </p>
@@ -52,4 +52,4 @@
   </details>
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled689_20260301154418.png" width="300" height="250" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled689_20260301154418.png" width="100" height="100" /> </p>
