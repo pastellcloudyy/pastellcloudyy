@@ -9,7 +9,7 @@
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+test+um+';'+WHAT+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=2000">
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+you+stink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+you+stink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=3000">
 
 <p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
