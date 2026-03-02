@@ -7,9 +7,9 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+Wow+,+still+seems+like+you+can't+do+anything+without+me+.+';'+Cat+got+your+tongue+?+'&font=Libertinus+Math&center=true&width=1080&height=50&color=70CBBB&duration=2500&pause=2000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+Wow+,+still+seems+like+you+can't+do+anything+without+me+.+';'+Cat+got+your+tongue+?+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=2000">
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+.+.+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=3000&pause=6000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+.+.+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=70CBBB&duration=3000&pause=6000">
 
 <p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
