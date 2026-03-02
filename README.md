@@ -3,7 +3,7 @@
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wowow.png" width="350" height="350"> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+How+much+poison+do+you+think+they+can+handle+?+';'+Let+the+experiment+commence+!+';'+Let's+see+if+my+hypothesis+is+correct+!+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1000">
-<p align='center'> mmm I hate thiisss 👀 </p>
+<p align='center'> ⭕️ subspace? nah sub-fart ⭕️ </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
 
@@ -25,7 +25,7 @@
 
 <div align='center'>
   
-[OC list](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx) 🩸 [Theory](https://www.reddit.com/r/DoodleWorldRBLX/comments/1bpmxbz/3_am_exiled_theories/) 🩸 [Callout](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
+[OC list](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx) 🩸 [Callout](https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?tab=t.0#heading=h.7vvaffwlrups)
   
 </div>
 
