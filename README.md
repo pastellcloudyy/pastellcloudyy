@@ -7,7 +7,9 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1200">
+<img src="https://readme-typing-svg.demolab.com/?lines='+test+um+';'+WHAT+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1500">
+
+<img src="https://readme-typing-svg.demolab.com/?lines='+you+stink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1500">
 
 <p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
