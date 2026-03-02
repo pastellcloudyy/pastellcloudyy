@@ -1,5 +1,4 @@
 <p align='center'> playing pony town less bc of school and the community is dogshit anyway </p>
-<p align='center'> before you ask yes I know 🔗 is the link emoji but shh </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="350" height="350"> </p>
 
@@ -10,7 +9,7 @@
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+The+origin+of+this+doodle+is+widely+disputed,+ultimately+boiling+down+to+speculation+and+rumor.+';'+Its+name+has+been+lost+to+time,+some+believing+it+to+be+a+punishment,+shackled+for+crimes+unknown.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1200">
 
-<p align='center'> 🌤 live laugh love exiled ok..? 🪽 </p>
+<p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled606_20260128121046.png" width="300" height="250" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
@@ -18,7 +17,7 @@
 <p align='center'> - once again, blocked unless you're my friend or e-fam, I might give exceptions </p>
 <p align='center'> <img src=https://adriansblinkiecollection.neocities.org/stamps/e79.gif /> </p>
 
-<p align='center'> ⛓️ read pronouns.cc for more information teehee ☀️ </p>
+<p align='center'> ⁉️ read pronouns.cc for more information teehee ⁉️ </p>
 
 <p align='center'> links below include the callout, oc list and the theory (no I don't use reddit) </p>
 
