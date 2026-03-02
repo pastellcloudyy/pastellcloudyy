@@ -1,13 +1,13 @@
 <p align='center'> 🚫 playing pony town less bc of school and the community is dogshit anyway 🚫 </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled605_20260128121654.png" width="350" height="350"> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wowow.png" width="350" height="350"> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+A+divine+beast+has+fallen+from+grace?+';'+How+worthless.+';'+Can't+protect+the+one+thing+they're+supposed+to.+';'+Banish+them.+';'+.+.+.+';'+You+won't+be+rememberd.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1000">
-<p align='center'> text inspired by a theory about exiled I found 👀 </p>
+<img src="https://readme-typing-svg.demolab.com/?lines='+How+much+poison+do+you+think+they+can+handle+?+';'+Let+the+experiment+commence+!+';'+Let's+see+if+my+hypothesis+is+correct+!+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1000">
+<p align='center'> mmm I hate thiisss 👀 </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+The+origin+of+this+doodle+is+widely+disputed,+ultimately+boiling+down+to+speculation+and+rumor.+';'+Its+name+has+been+lost+to+time,+some+believing+it+to+be+a+punishment,+shackled+for+crimes+unknown.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1200">
+<img src="https://readme-typing-svg.demolab.com/?lines='+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6ABCB&duration=2500&pause=1200">
 
 <p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
 
