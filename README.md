@@ -11,7 +11,7 @@
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+.+.+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=70CBBB&duration=3000&pause=6000">
 
-<p align='center'> ❓️ live laugh love exiled I mean subspace ok..? ❓️ </p>
+<p align='center'> ❓️ this took suprisingly long to make ❓️ </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/huh.png" width="100" height="100" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
@@ -21,7 +21,7 @@
 
 <p align='center'> ⁉️ read pronouns.cc for more information teehee ⁉️ </p>
 
-<p align='center'> links below include the callout, oc list and the theory (no I don't use reddit) </p>
+<p align='center'> links below include the callout and an oc list </p>
 
 <div align='center'>
   
