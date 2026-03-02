@@ -5,7 +5,7 @@
 <img src="https://readme-typing-svg.demolab.com/?lines='+A+divine+beast+has+fallen+from+grace?+';'+How+worthless.+';'+Can't+protect+the+one+thing+they're+supposed+to.+';'+Banish+them.+';'+.+.+.+';'+You+won't+be+rememberd.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1000">
 <p align='center'> text inspired by a theory about exiled I found 👀 </p>
 
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=E6ABCB&abbreviated=true&style=flat-square> </p>
+<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+The+origin+of+this+doodle+is+widely+disputed,+ultimately+boiling+down+to+speculation+and+rumor.+';'+Its+name+has+been+lost+to+time,+some+believing+it+to+be+a+punishment,+shackled+for+crimes+unknown.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=F2EAD1&duration=2500&pause=1200">
 
