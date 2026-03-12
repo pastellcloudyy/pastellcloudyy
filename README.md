@@ -1,5 +1,5 @@
 <p align='center'> 🚫 playing pony town less bc of school and motivation, the community is dogshit anyway 🚫 </p>
-<p align='center'> <small>find me on dergun town / forgotten home instead even if I also rarely play it</small> </p>
+<p align='center'> <sup>find me on dergun town / forgotten home instead even if I also rarely play it</sup> </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wowow.png" width="350" height="350"> </p>
 
@@ -33,7 +33,7 @@
 <div align="center">
   <details>
     <summary>     </summary>
-  <small>song refrence yes</small>
+  <sup>song refrence yes</sup>
 
 
 <p align='center'> Why.. Why.. </p>
