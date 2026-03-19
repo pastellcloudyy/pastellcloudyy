@@ -8,9 +8,9 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=db8748&abbreviated=true&style=flat-square> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+But+if+you+get+in+my+way+,+I'll+ditch+yer+body+in+the+desert+.+';'+okswordyoustink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=#C46D43&duration=2500&pause=2000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+But+if+you+get+in+my+way+,+I'll+ditch+yer+body+in+the+desert+.+';'+okswordyoustink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=C46D43&duration=2500&pause=2000">
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+Of+course+.+.+.+Haha.+.+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=#FFF8DB&duration=3000&pause=4000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+Of+course+.+.+.+Haha.+.+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=FFF8DB&duration=3000&pause=5000">
 
 <p align='center'> 🏜 these text things take me AGES to make bro imsorry for mistakes 🏜 </p>
 
