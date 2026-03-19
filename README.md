@@ -8,9 +8,9 @@
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=db8748&abbreviated=true&style=flat-square> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+wip+';'+rude..+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=2000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+longtextowawoahahhaaha+';'+uuummmm+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=2000">
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+u+stink+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=3000&pause=6000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+hah...yeah+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=3000&pause=6000">
 
 <p align='center'> 🏜 these text things take me AGES to make 🏜 </p>
 
