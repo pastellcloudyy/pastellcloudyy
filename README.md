@@ -6,7 +6,7 @@
 <img src="https://readme-typing-svg.demolab.com/?lines='+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=1000">
 <p align='center'> 🪨 WHY IS IT SO HARD REMAKING SOCIALS AAHH 🪨 </p>
 
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=B9124C&abbreviated=true&style=flat-square> </p>
+<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=db8748&abbreviated=true&style=flat-square> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+wip+';'+rude..+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=2000">
 
@@ -55,4 +55,4 @@
   </details>
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215244.png" width="300" height="100" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215244.png" width="300" height="250" /> </p>
