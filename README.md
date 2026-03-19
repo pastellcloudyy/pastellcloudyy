@@ -55,4 +55,4 @@
   </details>
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215244.png" width="500" height="350" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215244.png" width="600" height="550" /> </p>
