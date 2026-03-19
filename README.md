@@ -3,7 +3,7 @@
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318220911.png" width="350" height="350"> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+wip+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=1000">
+<img src="https://readme-typing-svg.demolab.com/?lines='+He+can+snipe+your+ass+?+Woah+.+.+';'+Bet+he+can+do+a+360+no+scope+hah+'&font=Libertinus+Math&center=true&width=1080&height=50&color=db8748&duration=2500&pause=1000">
 <p align='center'> 🪨 WHY IS IT SO HARD REMAKING SOCIALS AAHH 🪨 </p>
 
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=db8748&abbreviated=true&style=flat-square> </p>
