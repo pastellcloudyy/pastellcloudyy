@@ -16,7 +16,7 @@
 
 <p align='center'> 🏜 these text things take me AGES to make 🏜 </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215847.png" width="100" height="100" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318215847.png" width="200" height="200" /> </p>
 <p align='center'> - I might give permission to take inspo off my ocs, some ocs are a big no-no for inspo (example, main ocs) </p>
 <p align='center'> - simularly, I will also allow inspo off my cosplay skins but please don't copy them compleatly </p>
 <p align='center'> - once again, blocked unless you're my friend or e-fam, I might give exceptions </p>
