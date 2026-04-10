@@ -1,5 +1,5 @@
-<p align='center'> 🩹 playing pony town less bc of school and motivation, the community is dogshit anyway 🩹 </p>
-<p align='center'> <sup>find me on dergun town / forgotten home aswell teehee.. backflips</sup> </p>
+<p align='center'> 🩹 playing pony town less bc of school and motivation the community is dogshit anyway 🩹 </p>
+<p align='center'> <sup>pony town please add proper reporting systems and better/more mature moderation wdym you can't say fart...</sup> </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/chunk2_20260318220911.png" width="350" height="350"> </p>
 
