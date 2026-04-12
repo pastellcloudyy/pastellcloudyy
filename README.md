@@ -11,7 +11,7 @@
 <p align='center'> 📦 links below include an oc list, a canvas if you want to draw for me and the mentioned callout 📦 </p>
 <div align='center'>
   
-[oc list](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx) (link/website broken) ✉️ [canvas](https://canvaslol.straw.page) ✉️ [callout](https://docs.google.com/document/d/1nzZmpnHggR6aLrGhpoJmbjFTbwGqAC62DsZJq5kFyrU/edit?tab=t.0#heading=h.oj2lfcafynd)
+[oc list](https://spiral_cloudyy.notepin.co/list-of-ocs-fsbnipdx) ✉️ [canvas](https://canvaslol.straw.page) ✉️ [callout](https://docs.google.com/document/d/1nzZmpnHggR6aLrGhpoJmbjFTbwGqAC62DsZJq5kFyrU/edit?tab=t.0#heading=h.oj2lfcafynd)
   
 </div>
 
