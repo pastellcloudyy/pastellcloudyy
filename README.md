@@ -18,7 +18,7 @@
 <div align="center">
   <details>
     <summary>     </summary>
-  <sup>AiAiA by Ado</sup>
+  <sup>AiAiA by Ado/Kikuo</sup>
 
 
 <p align='center'> So happy, like you, kiss </p>
