@@ -11,4 +11,4 @@
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624194046.png" width="100" height="100" /> </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> ✉️ Spinning postman because yyes.. teehee.. ✉️ <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/3dgifmaker73609.gif" width="300" height="300" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/3dgifmaker73609.gif" width="250" height="250" /> </p>
