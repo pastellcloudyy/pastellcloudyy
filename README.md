@@ -1,5 +1,5 @@
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> ✉️ might play pony town more or less , depends to be honest ✉️ <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
-<p align='center'> <sup>currently playing less because of two major problems, find me on dergun town aka forgotten home instead.</sup> </p>
+<p align='center'> <sup>attempting to play less due to risks of having my skins stolen, I will use a more basic avatar</sup> </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1040_20260624194727.png" width="350" height="350"> </p>
 
