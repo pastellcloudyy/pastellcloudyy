@@ -1,7 +1,7 @@
 <p align='center'> check the group out here below </p>
 <p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/b1.png> </a> </p>
 
-<p align='center'> ✉️ </p>
+<p align='center'> 🍀 </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> ✉️ might play pony town more or less , depends to be honest ✉️ <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
 <p align='center'> <sup>attempting to play less due to risks of having my skins stolen and I just don't feel motivated to play all the time.. if I do get on copy town then please *dont* notify me</sup> </p>
