@@ -1,19 +1,11 @@
-<p align='center'> $${\color{#FCEE59}check out the group below}$$ </p>
+<p align='center'> $${\color{#FCEE59}check\ out\ the\ group\ below}$$ </p>
 <p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/icon.png> </a> </p>
+<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
 
-<p align='center'> 🍀 </p>
+<p align='center'> ill be remaking my stuff tomorrow for now this is how everything looks.. gulp </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> ✉️ might play pony town more or less , depends to be honest ✉️ <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
-<p align='center'> <sup>attempting to play less due to risks of having my skins stolen and I just don't feel motivated to play all the time.. if I do get on copy town then please *dont* notify me</sup> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="200" /> </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1040_20260624194727.png" width="350" height="350"> </p>
+<img src="https://readme-typing-svg.demolab.com/?lines='+the+real+';'+real+';'+real+me+';'+isn+'+t+made+of+love+and+dreams+';'+that+'+s+right+,+i+'+m+made+of+meat+'&font=Libertinus+Math&center=true&width=1080&height=50&color=FCEE59&duration=1500&pause=500">
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+Hey,+welcome+home+!+I'm+your+postman+.+NICE+to+meet+ya+!+';'+This+town+has+a+way+of+.+.+.+remembering+its+players+.+';'+Nostalgic,+isin't+it+?+'&font=Libertinus+Math&center=true&width=1080&height=50&color=E6D091&duration=3000&pause=2000">
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> 🍀 WHY IS IT SO HARD REMAKING SOCIALS AAHH 🍀 <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
-
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=163C5F&abbreviated=true&style=flat-square> </p>
-
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624194046.png" width="100" height="100" /> </p>
-
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> ✉️ Spinning postman because yyes.. teehee.. ✉️ <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1039_20260624193458.png" width="20" height="20" /> </p>
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/3dgifmaker73609.gif" width="250" height="250" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo2.png" width="500" height="100" /> </p>
