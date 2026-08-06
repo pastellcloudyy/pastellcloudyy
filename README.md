@@ -3,6 +3,7 @@
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
 
 <p align='center'> ill be remaking my stuff tomorrow for now this is how everything looks.. gulp </p>
+<p align='center'> pfp art not mine duh </p>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="200" /> </p>
 
