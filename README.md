@@ -1,5 +1,5 @@
-<p align='center'> check the group out here below </p>
-<p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/b1.png> </a> </p>
+<p align='center'> $${\color{#FCEE59}check out the group below}$$ </p>
+<p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/icon.png> </a> </p>
 
 <p align='center'> 🍀 </p>
 
