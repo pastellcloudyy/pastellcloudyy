@@ -24,4 +24,4 @@
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo2.png" width="500" height="100" /> </p>
-<p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/readdoc.png> </a> </p>
+<p align='center'> <a href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0"> <img src=https://file.garden/aFcXo5382hs7xX6v/readdoc.png> </a> </p>
