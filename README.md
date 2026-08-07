@@ -7,7 +7,7 @@
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="200" /> </p>
 
-<img src='https://file.garden/aFcXo5382hs7xX6v/Untitled1153.png' align='left' width="300">
+<img src='https://file.garden/aFcXo5382hs7xX6v/Untitled1153.png' align='left' width="280">
 <div align=''>
   <table>
     <tr>
