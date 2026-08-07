@@ -4,7 +4,7 @@
 
 <p align='center'> <sub> pfp art not mine big fat credits to the original @ihatetoitoi on tiktok ^^</sub> </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="200" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="250" /> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+i+want+';'+hair+like+yours+';'+hands+like+yours+';'+fingers+that+curl+in+the+cold+like+yours+';'+i+want+eyes+to+stare+';'+and+to+cry+';'+when+i'm+feeling+scared+';'+like+you+'&font=Libertinus+Math&center=true&width=1080&height=50&color=fedb03&duration=2000&pause=500">
 
