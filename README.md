@@ -2,7 +2,12 @@
 <p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/icon.png> </a> </p>
 <p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="35" height="35" /> pfp art not mine big fat credits to the original @ihatetoitoi on tiktok ^^ <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="35" height="35" /> </p>
+<div align="center">
+  
+$${\color{#ffffff} pfp\ art\ credits\ to\ the\ @ihatetoitoi\ on\ tiktok}$$ 
+
+<img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="35" height="35"> 
+</div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo.png" width="500" height="250" /> </p>
 
