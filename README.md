@@ -4,7 +4,7 @@
 
 <div align="center">
   
-$${\color{#ffffff} pfp\ art\ credits\ to\ the\ @ihatetoitoi\ on\ tiktok}$$ 
+$${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$ 
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="35" height="35"> 
 </div>
