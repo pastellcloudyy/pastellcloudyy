@@ -19,7 +19,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
       <td>
         <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="50" height="50" /> </p>
         <p align='center'> $${\color{#fedb03}'\ '\ shadow\ isn't\ their\ real\ name\ '\ '}$$ </p>
-        <p align='center'> $${\color{#FFFFFF}pastel\ or\ cloudy}$$ </p>
+        <p align='center'> $${\color{#FFFFFF}pastel/cloudy}$$ $${\color{#FCEE59}or}$$ $${\color{#FFFFFF}time/bomb}$$ </p>
         <p align='center'> $${\color{#FFFFFF}he/they/it}$$ </p>
         <p align='center'> $${\color{#FFFFFF}libramasculine\ +\ lithromantic}$$ </p>
         <p align='center'> $${\color{#FCEE59}----------}$$ </p>
