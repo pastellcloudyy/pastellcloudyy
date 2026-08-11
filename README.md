@@ -6,7 +6,7 @@
   
 $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$ 
 
-<img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-gif-dance-sit-4x%20(1).gif" width="100"> 
+<img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-gif-dance-sit-4x.gif" width="100"> 
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wwew.png" width="500" height="150" /> </p>
