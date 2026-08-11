@@ -1,5 +1,6 @@
 <p align='center'> $${\color{#fedb03}check\ out\ the\ group\ below\ (click\ on\ stamp)}$$ </p>
 <p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/icon.png> </a> </p>
+<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
 
 <div align="center">
   
@@ -7,7 +8,6 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-gif-dance-sit-4x.gif" width="100"> 
 
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wwew.png" width="500" height="150" /> </p>
