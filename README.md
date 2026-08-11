@@ -6,7 +6,7 @@
   
 $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$ 
 
-<img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1154_20260807000807.png" width="35" height="35"> 
+<img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-gif-dance-sit-4x%20(1).gif" width="100"> 
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/wwew.png" width="500" height="150" /> </p>
@@ -33,4 +33,3 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/redo2.png" width="500" height="100" /> </p>
-<p align='center'> <a href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0"> <img src=https://file.garden/aFcXo5382hs7xX6v/readdoc.png> </a> </p>
