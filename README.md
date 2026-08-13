@@ -1,6 +1,6 @@
 <p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/aFcXo5382hs7xX6v/icon.png> </a> </p>
 <p align='center'> $${\color{#fedb03}check\ out\ the\ edgylords\ above\ (click\ on\ stamp)}$$ </p>
-<p align='center'> <img src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&abbreviated=true&style=flat-square> </p>
+<p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
 
 <div align="center">
 
