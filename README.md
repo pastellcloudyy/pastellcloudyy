@@ -33,4 +33,4 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
   </table>
 </div>
 
-<p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk2.png" width="500" height="100" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1156_20260823192722.png" width="500" height="100" /> </p>
