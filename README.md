@@ -12,7 +12,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="500" height="150" /> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+i+want+';'+hair+like+yours+';'+hands+like+yours+';'+fingers+that+curl+in+the+cold+like+yours+';'+i+want+eyes+to+stare+';'+and+to+cry+';'+when+i'm+feeling+scared+';'+like+you+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=500">
+<img src="https://readme-typing-svg.demolab.com/?lines='+I+need+to+figure+out+how+to+add+';'+overheater+lyrics+';'+bro+';'+it+doesn't+work+for+some+reason+';'+pls+overheater+is+so+peak+';'+bro';'+pls+';'+listen+to+overheater+by+hasami+group+asap+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=500">
 
 <div align='center'>
   <table>
