@@ -34,3 +34,12 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 </div>
 
 <p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1156_20260823192722.png" width="500" height="100" /> </p>
+
+<div align='center'>
+<details>
+<summary>
+  
+</summary>
+<a href="https://github.com/title-town">🖤 @title-town 🖤 <a href="https://github.com/pt-fashion">@pt-fashion 🖤 <a href="https://github.com/pt-friendships">@pt-friendships 🖤
+</details>
+</div>
