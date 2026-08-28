@@ -22,7 +22,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
         <p align='center'> $${\color{#857083}'\ '\ shadow\ isn't\ their\ real\ name\ '\ '}$$ </p>
         <p align='center'> $${\color{#FFFFFF}pastel/cloudy}$$ $${\color{#A6919C}or}$$ $${\color{#FFFFFF}time/bomb}$$ </p>
         <p align='center'> $${\color{#FFFFFF}he/they/it\ +\ any\ neopronouns}$$ </p>
-        <p align='center'> $${\color{#FFFFFF}aegosexual\ +\ lithromantic}$$ </p>
+        <p align='center'> $${\color{#FFFFFF}genderfaun\ +\ lithromantic}$$ </p>
         <p align='center'> $${\color{#A6919C}----------}$$ </p>
         <p align='center'> $${\color{#ffffff}do\ not\ interact\ unless\ I\ do}$$ </p>
         <p align='center'> $${\color{#ffffff}don't\ c+h\ without\ permission}$$ </p>
