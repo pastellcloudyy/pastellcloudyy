@@ -13,7 +13,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="500" height="150" /> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+3,+2,+1+the+bomb+goes+boom+.+';'+A+huge+fanbase+we're+dying+to+have+?+';'+Labeled+as+underdogs+?+';'+Nah,+that's+not+it+.+';'+We're+riding+the+rhythm+you+get+it+?+';'+Last+year+marked+our+eighth+year+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=500">
+<img src="https://readme-typing-svg.demolab.com/?lines='+.+';'+.+';'+.+';'+.+';'+.+';'+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=500">
 
 <div align='center'>
   <table>
