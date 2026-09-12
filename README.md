@@ -13,7 +13,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="500" height="150" /> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+.+';'+.+';'+.+';'+.+';'+.+';'+.+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=500">
+<img src="https://readme-typing-svg.demolab.com/?lines='+Round+and+around+and+around+,+they+won't+ever+hit+the+ground+';'+But+I'm+down+,+tightly+bound+to+failure+';'+Failure+,+the+thing+that+I+can't+ever+seem+to+run+away+from+';'+I+wasn't+good+at+running+anyway+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=550">
 
 <div align='center'>
   <table>
