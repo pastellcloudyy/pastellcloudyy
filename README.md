@@ -41,6 +41,6 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 <summary>
   
 </summary>
-<a href="https://github.com/title-town">🖤 @title-town 🖤 <a href="https://github.com/pt-fashion">@pt-fashion 🖤 <a href="https://github.com/pt-friendships">@pt-friendships 🖤
+<a href="https://github.com/title-town">🖤 @title-town 🖤 <a href="https://github.com/pt-fashion">@pt-fashion 🖤 <a href="https://github.com/pt-friendships">@pt-friendships 🖤 <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations 🖤
 </details>
 </div>
