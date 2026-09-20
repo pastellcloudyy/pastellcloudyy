@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-gif-dance-sit-4x.gif" width="100"> 
+<img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-uhg-dance-sit-ponyplush-4x.gif" width="100"> 
   
 $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$ 
 <p align='center'> $${\color{#A6919C}only\ online\ on\ weekends\ due\ to\ school\ (╥﹏╥)}$$ </p>
