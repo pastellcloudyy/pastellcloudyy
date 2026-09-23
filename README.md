@@ -41,7 +41,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 <summary>
   
 </summary>
-🖤 ty for nominations 🖤
+$${\color{#ffffff} 🖤\ ty\ for\ nominations\ 🖤}$$
 
 <a href="https://github.com/title-town">@title-town
   
