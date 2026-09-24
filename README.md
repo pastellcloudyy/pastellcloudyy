@@ -1,7 +1,3 @@
-<p align='center'> <a href="https://rentry.co/edgylords"> <img src=https://file.garden/anufgb_7NW8PS6AJ/graprmk3.png> </a> </p>
-<p align='center'> $${\color{#857083}check\ out\ the\ edgylords\ above\ (click\ on\ stamp)}$$ </p>
-<p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
-
 <div align="center">
 
 <img src="https://file.garden/aFcXo5382hs7xX6v/pony-town-uhg-dance-sit-ponyplush-4x.gif" width="100"> 
@@ -11,15 +7,17 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 </div>
 
-<p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="500" height="150" /> </p>
+<p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="650" /> </p>
 
 <img src="https://readme-typing-svg.demolab.com/?lines='+Round+and+around+and+around+,+they+won't+ever+hit+the+ground+';'+But+I'm+down+,+tightly+bound+to+failure+';'+Failure+,+the+thing+that+I+can't+ever+seem+to+run+away+from+';'+I+wasn't+good+at+running+anyway+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=550">
 
+<p align='center'> <a href="https://rentry.co/edgylords"><img src=https://file.garden/anufgb_7NW8PS6AJ/graprmk3.png></a> </p>
 <div align='center'>
   <table>
     <tr>
       <td>
-        <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk4.png" width="50" height="50" /> </p>
+        <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
+        <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk4.png" width="50" /> </p>
         <p align='center'> $${\color{#857083}'\ '\ shadow\ isn't\ their\ real\ name\ '\ '}$$ </p>
         <p align='center'> $${\color{#FFFFFF}pastel/cloudy}$$ $${\color{#A6919C}or}$$ $${\color{#FFFFFF}time/bomb}$$ </p>
         <p align='center'> $${\color{#FFFFFF}he/they/it\ +\ any\ neopronouns}$$ </p>
@@ -34,7 +32,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
   </table>
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1156_20260823192722.png" width="500" height="100" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/Untitled1156_20260823192722.png" width="650" /> </p>
 
 <div align='center'>
 <details>
