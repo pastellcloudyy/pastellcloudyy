@@ -11,8 +11,8 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
  <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
 
-<img align="left" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=180>
-<img align="right" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=180>
+<img align="left" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
+<img align="right" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
 <div align="center">
   <table>
     <tr>
