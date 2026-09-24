@@ -7,7 +7,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 </div>
 
-<p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="650" /> </p>
+<p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="600" /> </p>
 
  <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
 
@@ -32,7 +32,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
   </table>
 </div>
 
-<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/agh.png" width="650" /> </p>
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/agh.png" width="600" /> </p>
 
 <div align='center'>
 <details>
