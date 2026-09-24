@@ -9,14 +9,14 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 
 <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="650" /> </p>
 
-<img src="https://readme-typing-svg.demolab.com/?lines='+Round+and+around+and+around+,+they+won't+ever+hit+the+ground+';'+But+I'm+down+,+tightly+bound+to+failure+';'+Failure+,+the+thing+that+I+can't+ever+seem+to+run+away+from+';'+I+wasn't+good+at+running+anyway+'&font=Libertinus+Math&center=true&width=1080&height=50&color=A6919C&duration=2000&pause=550">
+ <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
 
-<p align='center'> <a href="https://rentry.co/edgylords"><img src=https://file.garden/anufgb_7NW8PS6AJ/graprmk3.png></a> </p>
-<div align='center'>
+<img align="left" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
+<img align="right" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
+<div align="center">
   <table>
     <tr>
       <td>
-        <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
         <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk4.png" width="50" /> </p>
         <p align='center'> $${\color{#857083}'\ '\ shadow\ isn't\ their\ real\ name\ '\ '}$$ </p>
         <p align='center'> $${\color{#FFFFFF}pastel/cloudy}$$ $${\color{#A6919C}or}$$ $${\color{#FFFFFF}time/bomb}$$ </p>
