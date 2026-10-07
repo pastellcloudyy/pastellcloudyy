@@ -39,7 +39,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @ihatetoitoi\ on\ tiktok}$$
 <summary>
   
 </summary>
-$${\color{#ffffff} 🖤\ ty\ for\ nominations\ 🖤}$$
+$${\color{#ffffff} 🖤\ thank\ you\ for\ nominations\ 🖤}$$
 
 <a href="https://github.com/title-town">@title-town
   
@@ -47,6 +47,8 @@ $${\color{#ffffff} 🖤\ ty\ for\ nominations\ 🖤}$$
 
 <a href="https://github.com/pt-friendships">@pt-friendships
 
-<a href="https://github.com/pt-ship-nominations">@pt-ship-nominations
+<a href="https://github.com/pt-ship-nominations">@pt-ship-nomination
+
+<a href="https://github.com/appreciation-pt">@appreciation-pt
 </details>
 </div>
