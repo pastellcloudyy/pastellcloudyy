@@ -50,5 +50,7 @@ $${\color{#ffffff} 🖤\ thank\ you\ for\ nominations\ 🖤}$$
 <a href="https://github.com/pt-ship-nominations">@pt-ship-nomination
 
 <a href="https://github.com/appreciation-pt">@appreciation-pt
+
+<a href="https://github.com/THE-TEMPIST">@THE-TEMPIST
 </details>
 </div>
