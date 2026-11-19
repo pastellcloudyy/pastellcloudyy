@@ -26,6 +26,8 @@
       </td>
     </tr>
   </table>
+
+<p align='center'> <img src="https://file.garden/aFcXo5382hs7xX6v/we.png" width="1000" /> </p>
 </div>
 <div align='center'>
 <details>
