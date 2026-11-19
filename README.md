@@ -9,7 +9,7 @@ $${\color{#ffffff} pfp\ art\ credits\ to\ @viimsey\ ❤︎}$$
 
 <p align='center'> <img src="https://file.garden/anufgb_7NW8PS6AJ/graprmk1.png" width="600" /> </p>
 
- <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=gameshow+death+count> </p>
+ <p align='center'> <img align="center" src=https://komarev.com/ghpvc/?username=pastellcloudyy&color=000000&style=plastic&label=visitors+⟡> </p>
 
 <img align="left" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
 <img align="right" img src="https://file.garden/aFcXo5382hs7xX6v/augh%20bruh%20sonnpls_20260924143338.png" width=150>
